@@ -7,7 +7,7 @@ a little bit butter and olive oil
 first crack the eggs and add 1 ts salt and mix it 
 after that heat the oven and poor olive oil and butter 
 after that put mixture in it when it cooked it is ready to 
-eat (Omlette).
+eat (Omlette).320 kcal
 
 My mother 26.34
 My father 27.95
